@@ -6,6 +6,7 @@ Are you ready to unlock the full potential of Roblox? Whether you’re a seasone
 
 In this article, we’ll explore everything you need to know about Nihon Executor, including its standout features, how it compares to competitors, and where you can download it safely from our trusted website: [robloxexecutors.bitbucket.io](http://robloxexecutors.bitbucket.io). Let’s dive in! 🌊
 
+[![Download Nihon](https://img.shields.io/badge/Download-Nihon-blueviolet)](https://robloxexecutors.bitbucket.io/executors/nihon/)
 ---
 
 ### **Key Features of Nihon Executor That Make It Irresistible 🏆**
